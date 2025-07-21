@@ -15,3 +15,5 @@ The official website directly states USD 46,999, and I did not convert .Regardin
 
 > Swift, again put them in the same folder, we are talking about the same products. About, the contract, this car manufacturer, they do have an office or manufacture in China, try to add there WeChat and then get the information. I found their video in WeChat
 
+https://argoxtv.com/intl/become-a-dealer
+I found this site , May be we should register a dealer then we can do export action.
